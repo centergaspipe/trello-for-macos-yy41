@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with Trello for macOS vip Automation: collaboration & voice notes, the #1 automation. Includes collaboration and voice notes for a smoother experience.
 
 
 
